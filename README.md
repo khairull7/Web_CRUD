@@ -1,1 +1,1 @@
-
+#WAJIBNGULIK
